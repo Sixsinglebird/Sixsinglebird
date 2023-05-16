@@ -6,5 +6,6 @@ I have 3 dogs, (I) had a fourth buddy but we recently lost him to old age.
 
 I have dreams, and I have the right to chase them.
 
+  K.I.S.S.
   Cheers,
   A. singleton
