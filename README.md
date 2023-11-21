@@ -1,8 +1,8 @@
 Welcome to my profile Sixsinglebird, 
 
-Im a canadian citizen, and amateur developer still in school.
-I have 3 dogs, (I) had a fourth buddy but we recently lost him to old age.
-11 years old and a pug is impressive.
+Im a canadian citizen, and an aspiring developer still in school.
+A couple wrong turns lead me to the right place.
+Out of all the things I could've ended up doing, I'm thankful this is where i landed.
 
-  Cheers,
+Cheers,
   Alex.
